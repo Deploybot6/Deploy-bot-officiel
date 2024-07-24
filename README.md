@@ -1,21 +1,23 @@
 # Deploy-bot-officiel
 Welcome to the service deploy bot we deploy all types bot if you want a bot you can contact me on this numbers +50940804440 , +50941695706
-        
-       BOT USAGE= (.menu) or (.allmenu)
-              
-This site  allows you to do your research you just have to write *.ia* then the subject you are looking for while you are on WhatsApp you can do all your research 
+       
+       • This bot will remain active 24 hours a day so if you want more information about this bot do not hesitate to write to us in +50940804440
 
-*   This WhatApp bot is made to learn how to deploy bots or AI and various things 
+USAGE BOT 
+To use this bot it's simple you just have to write menu (to see the bot menu) and allmenu (for your entire bot menu)
+This bot is built only for WhatsApp !..
 
-If you are interested in the work we are all giving you and you want to share it with your friends here is the Channel link.
+This bot is built only for WhatsApp !...
+
+You scan the bot and deploy it to activate it on your WhatsApp. You can add it to your WhatsApp to do your private research example .gpt that's the goal of computing
+
+Don't use artificial intelligence unless you need it!
+
+_*Info*_: This bot was created by professional programmers and deployers
+
+_*Creator of this bot*_: +50940804440,
++50941695706.
 
 If you need more information on what we call bot you can contact us in +50940804440
 
-Deploy bot website and practice 
-https://deploybot.websites.co.in ( Choose your bot after you can contact me for pay your bot
-
-</p> don't spam your bot beacause this bot is for only WhatsApp
-
-<link></channel>:ᴅᴇᴘʟᴏʏ ʙᴏᴛ Channel ☟︎︎︎*
-https://whatsapp.com/channel/0029VagBjxW90x2pdgh7Yg1n
 
