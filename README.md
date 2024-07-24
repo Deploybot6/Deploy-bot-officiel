@@ -1,5 +1,5 @@
 # Deploy-bot-officiel
-Welcome to the service deploy bot we deploy all types bot if you want a bot you can contact me on this number +50940804440.
+Welcome to the service deploy bot we deploy all types bot if you want a bot you can contact me on this numbers +50940804440 , +50941695706
         
        BOT USAGE= (.menu) or (.allmenu)
               
@@ -12,7 +12,6 @@ If you are interested in the work we are all giving you and you want to share it
 If you need more information on what we call bot you can contact us in +50940804440
 
 Deploy bot website and practice 
-https://rat9.webnode.fr ( not real site i just free )
 https://deploybot.websites.co.in ( Choose your bot after you can contact me for pay your bot
 
 </p> don't spam your bot beacause this bot is for only WhatsApp
