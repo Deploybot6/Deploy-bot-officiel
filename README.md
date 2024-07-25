@@ -32,10 +32,13 @@ Deployment of software and IT systems “Effective deployment of software and IT
     Computer science and programming training 
 "Training in computer science and programming allows you to acquire essential skills to understand and master the digital technologies of our society Computer maintenance and troubleshooting IT maintenance and troubleshooting is essential to ensure that a company's IT systems and equipment are running smoothly.
        
-       Development of websites and mobile applications 
-The development of websites and mobile applications is essential to adapt to the growing needs of digital society. Advice on digital strategy and IT security “Digital strategy and IT security advice is essential to protecting data and ensuring business success in a world of Learn more Our work The work provided by the *Deploy bot* team is simply exceptional! As deployment and programming professionals, they provide valuable assistance to anyone who wants to learn more about IT. Their menu is particularly noteworthy, offering a simple and effective solution for deploying a bot. * Software and application deployment: We specialize in the deployment of software and applications on different platforms, whether for desktops, servers or mobile devices.
+    Development of websites and mobile applications 
+The development of websites and mobile applications is essential to adapt to the growing needs of digital society. Advice on digital strategy and IT security “Digital strategy and IT security advice is essential to protecting data and ensuring business success in a world of Learn more Our work The work provided by the Deploy bot team is simply exceptional! As deployment and programming professionals, they provide valuable assistance to anyone who wants to learn more about IT. Their menu is particularly noteworthy, offering a simple and effective solution for deploying a bot. 
 
-     * Custom Programming:
+     Software and application deployment: 
+We specialize in the deployment of software and applications on different platforms, whether for desktops, servers or mobile devices.
+
+      Custom Programming:
 We also offer custom programming services to meet your specific software development and learning needs Services Deployment of software and IT systems “Effective deployment of software and IT systems is essential to ensure
 
       Creator this bot 
